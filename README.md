@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate adult swim episodes ... somethin...
   
 - 📫 How to reach me ... don't 
-- ⚡ Fun fact: ... lightning is kewl
+- ⚡ Fun fact: ... lightning is good
 
 <!---
 BPocchiA/BPocchiA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
