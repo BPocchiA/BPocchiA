@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @BPocchiA
 - 👀 I'z a ✨ special ✨ repository ...
 - good number
-- 💞️ I’m looking to collaborate on south park episodes... get at me
+- 💞️ I’m looking to collaborate adult swim episodes ... somethin...
+  
 - 📫 How to reach me ... don't 
 - ⚡ Fun fact: ... lightning is kewl
 
